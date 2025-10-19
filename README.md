@@ -1,4 +1,3 @@
 
-file:///C:/Users/user/Downloads/20251014-1026-15.8693890%20(3).gif
 
 
