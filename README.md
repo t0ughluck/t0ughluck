@@ -5,7 +5,6 @@
     𝐼 𝑙𝑖𝑘𝑒 𝑑𝑟𝑎𝑤𝑖𝑛𝑔 (𝑠𝑜𝑚𝑒𝑡𝑖𝑚𝑒𝑠) 𝑎𝑛𝑑 𝑝𝑙𝑎𝑦𝑖𝑛𝑔 𝑟𝑜𝑏𝑙𝑜𝑥 !
 
      𝐼 𝑙𝑜𝑣𝑒 𝑚𝑦 𝑝𝑎𝑟𝑡𝑛𝑒𝑟 <3
-     
 <img width="735" height="522" alt="image" src="https://github.com/user-attachments/assets/7cfd0b6a-d987-4983-aa04-96a6c1445604" />
 
 
