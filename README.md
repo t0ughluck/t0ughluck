@@ -6,11 +6,10 @@
               Forsaken
             Dandy's World
              Block Tales
-            
-            𝐹𝑎𝑣 𝑆ℎ𝑖𝑝𝑠 !!
-     Toughluck (Chance X Guest1337), 1337n7 (Guest 1337 X 007n7), Pumpkintrap (Dusekkar X Taph), Fruitcake (Cosmo X Sprout), Shiningarmour (Glisten X Soulvester), Toxichero (Griefer X Player), Icedtea (Cruel King X Mayor Thaniyel) 
+             
+    𝑇𝑜𝑢𝑔ℎ𝑙𝑢𝑐𝑘 𝑓𝑎𝑛 𝑃𝐿𝐸𝐴𝑆𝐸 𝑖𝑛𝑡𝑒𝑟𝑎𝑐𝑡
      
-          𝐴𝑑𝑚𝑖𝑛𝑣𝑖𝑟𝑢𝑠, 𝑆𝑙𝑎𝑠ℎ𝑒𝑟1337 𝑎𝑛𝑑 𝐼𝑐ℎ𝑎𝑛𝑐𝑒 𝑓𝑎𝑛𝑠 𝑖𝑛𝑡𝑒𝑟𝑎𝑐𝑡 𝑤𝑖𝑡ℎ 𝑒𝑥𝑡𝑟𝑒𝑚𝑒 𝑐𝑎𝑢𝑡𝑖𝑜𝑛 .
+        𝐴𝑑𝑚𝑖𝑛𝑣𝑖𝑟𝑢𝑠, 𝑆𝑙𝑎𝑠ℎ𝑒𝑟1337 𝑎𝑛𝑑 𝐼𝑐ℎ𝑎𝑛𝑐𝑒 𝑓𝑎𝑛𝑠 𝑖𝑛𝑡𝑒𝑟𝑎𝑐𝑡 𝑤𝑖𝑡ℎ 𝑒𝑥𝑡𝑟𝑒𝑚𝑒 𝑐𝑎𝑢𝑡𝑖𝑜𝑛 .
 <img width="1080" height="734" alt="image" src="https://github.com/user-attachments/assets/c73c3acb-deb4-4de8-bf89-0ed2ae7fe234" />
 
 
