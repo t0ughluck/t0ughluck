@@ -10,6 +10,5 @@ SPECTER
 Cookie Run: Kingdom
    𝐹𝑎𝑣 𝑆ℎ𝑖𝑝𝑠 !!
 Toughluck (Chance X Guest1337), Pumpkintrap (Dusekkar X Taph), Fruitcake (Cosmo X Sprout), Shiningarmour (Glisten X Soulvester), Steelnell (Steel Winters X Cornell Marshall), Toxichero (Griefer X Player), Icedtea (Cruel King X Mayor Thaniyel)
-         <img width="1080" height="1080" alt="image" src="https://github.com/user-attachments/assets/b5c5c445-ebce-48a3-9532-df72402ccbf4" />
-
+         
    
