@@ -10,4 +10,6 @@
             𝐹𝑎𝑣 𝑆ℎ𝑖𝑝𝑠 !!
      Toughluck (Chance X Guest1337), 1337n7 (Guest 1337 X 007n7), Pumpkintrap (Dusekkar X Taph), Fruitcake (Cosmo X Sprout), Shiningarmour (Glisten X Soulvester), Toxichero (Griefer X Player), Icedtea (Cruel King X Mayor Thaniyel) 
           𝐴𝑑𝑚𝑖𝑛𝑣𝑖𝑟𝑢𝑠, 𝑆𝑙𝑎𝑠ℎ𝑒𝑟1337 𝑎𝑛𝑑 𝐼𝑐ℎ𝑎𝑛𝑐𝑒 𝑓𝑎𝑛𝑠 𝑖𝑛𝑡𝑒𝑟𝑎𝑐𝑡 𝑤𝑖𝑡ℎ 𝑒𝑥𝑡𝑟𝑒𝑚𝑒 𝑐𝑎𝑢𝑡𝑖𝑜𝑛 .
+<img width="1080" height="1228" alt="image" src="https://github.com/user-attachments/assets/c84a1918-a77d-400f-8029-a52cb0730d7c" />
+
    
