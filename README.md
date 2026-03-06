@@ -2,7 +2,7 @@
 
 ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ $\color{#708090}{\textsf{c+h , w2i , offtab / afk ꒱}}$
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ(this is a spam follow acc btw)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ(this is a spam follow acc btw)
 
 ㅤㅤ ㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ  🎰👊
 ㅤㅤㅤ<img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/f8ba3d16-9b89-4e5e-ba3a-57c4a6b2eff1" />
