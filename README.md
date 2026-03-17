@@ -2,4 +2,5 @@
 
 ㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ $\color{#708090}{\textsf{c+h , w2i , offtab / afk ꒱}}$ㅤㅤ
 ㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤ<img width="1280" height="1280" alt="image" src="https://github.com/user-attachments/assets/1adb217d-3793-4139-82cc-f1f794d02857" />
+<img width="374" height="374" alt="image" src="https://github.com/user-attachments/assets/1abdea1b-b134-419d-81f7-9d23841486d7" />
+
