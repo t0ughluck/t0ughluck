@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ $\color{#4169E1}{\textsf{꒰ hello ! ! i'm siver - they/any prns - ru/eng }}$ 
+ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ $\color{#4169E1}{\textsf{꒰ hello ! ! i'm siver - they/any prns - ru/eng }}$ 
 
 ㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ $\color{#708090}{\textsf{c+h , w2i , offtab / afk ꒱}}$ㅤㅤ
 ㅤㅤㅤㅤㅤㅤ
