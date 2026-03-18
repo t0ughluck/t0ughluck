@@ -5,4 +5,4 @@
 ㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤ <img width="439" height="439" alt="image" src="https://github.com/user-attachments/assets/ddb9ea73-091c-41fb-8d7c-7f78fefea809" />
 
-ㅤㅤㅤㅤ $\color{#D22B2B}{\textsf{꒰ all socials are siversnowflakes btw !}}$ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ $\color{#FFBF00}{\textsf{i dont rlly have dni just dont be weird pls ...}}$
+ㅤㅤㅤㅤㅤ $\color{#D22B2B}{\textsf{꒰ all socials are siversnowflakes btw !}}$ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ $\color{#FFBF00}{\textsf{i dont rlly have dni just dont be weird pls ...}}$
