@@ -5,6 +5,5 @@
 ㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤ <img width="439" height="439" alt="image" src="https://github.com/user-attachments/assets/ddb9ea73-091c-41fb-8d7c-7f78fefea809" />
 
-ㅤㅤㅤㅤ<img width="650" height="650" alt="image" src="https://github.com/user-attachments/assets/a1df0d52-d040-4cc2-a8fa-d29397b1885a" />
 
 ㅤ
