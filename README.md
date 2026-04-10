@@ -7,4 +7,4 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <a href="https://hits.sh/github.com/herbolist/"><img alt="Hits" src="https://hits.sh/github.com/herbolist.svg?label=toughluckers&color=4141c2&labelColor=9e3d3d"/></a>
 
-ㅤㅤㅤㅤ<img width="771" height="386" alt="Illustration2" src="https://github.com/user-attachments/assets/994d1027-ad99-4ab0-95cf-7bfcd990a280" />
+ㅤㅤㅤ<img width="771" height="386" alt="Illustration2" src="https://github.com/user-attachments/assets/994d1027-ad99-4ab0-95cf-7bfcd990a280" />
