@@ -3,7 +3,8 @@
 ㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ $\color{#708090}{\textsf{꒰ c+h, w2i, i'm mostly afk so i might not respond, sorry ..꒱ }}$ㅤ
 
 ㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="1536" height="1574" alt="image" src="https://github.com/user-attachments/assets/e4595351-0017-468a-bfa3-a68fae8dda1b" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="876" height="898" alt="image" src="https://github.com/user-attachments/assets/83a58dc0-527f-4937-802b-af54b5afa06c" />
+
 
 
 
