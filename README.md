@@ -3,7 +3,8 @@
 ㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ $\color{#708090}{\textsf{꒰ c+h, w2i, i'm mostly afk so i might not respond, sorry ..꒱ }}$ㅤ
 
 ㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="876" height="898" alt="result_p4zkF-5dRLF-HalMszfyawkVFLx6lNtFowTMyw5nu3Xf9BNgQht7CkWVTxd5yRgvtU9ciZxNF-ZeuBDce66s-x_a-Photoroom" src="https://github.com/user-attachments/assets/cc480aaf-1a9d-4416-bd45-10955549a0c1" />
+ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ<img width="560" height="574" alt="result_p4zkF-5dRLF-HalMszfyawkVFLx6lNtFowTMyw5nu3Xf9BNgQht7CkWVTxd5yRgvtU9ciZxNF-ZeuBDce66s-x_a-Photoroom (1)" src="https://github.com/user-attachments/assets/d60daec0-a156-4d6d-a359-4e79b7f5fab3" />
+
 
 
 
