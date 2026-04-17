@@ -2,8 +2,8 @@
 
 ㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ $\color{#708090}{\textsf{꒰ c+h, w2i, i'm mostly afk so i might not respond, sorry ..꒱ }}$ㅤ
 
-ㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ ㅤ ㅤㅤ <img width="560" height="574" alt="result_p4zkF-5dRLF-HalMszfyawkVFLx6lNtFowTMyw5nu3Xf9BNgQht7CkWVTxd5yRgvtU9ciZxNF-ZeuBDce66s-x_a-Photoroom (1)" src="https://github.com/user-attachments/assets/d60daec0-a156-4d6d-a359-4e79b7f5fab3" />
+<img width="891" height="935" alt="image" src="https://github.com/user-attachments/assets/35d287ae-ca6a-4d9b-912e-6c70e5e7fd80" /> ㅤㅤ<img width="900" height="900" alt="image" src="https://github.com/user-attachments/assets/41e5107d-8e92-45d3-94d8-62e43cff6e99" />
+
 
 
 
