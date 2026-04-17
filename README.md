@@ -1,6 +1,6 @@
-ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ $\color{#4169E1}{\textsf{꒰ hello ! ! i'm siver - they/any prns - ru/eng ꒱}}$ 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ $\color{#4169E1}{\textsf{꒰ hello ! ! i'm siver - they/any prns - ru/eng ꒱}}$ 
 
-ㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ $\color{#708090}{\textsf{꒰ c+h, w2i, i'm mostly afk so i might not respond, sorry ..꒱ }}$ㅤ
+ㅤㅤㅤ ㅤㅤㅤㅤ ㅤㅤ $\color{#708090}{\textsf{꒰ c+h, w2i, i'm mostly afk so i might not respond, sorry ..꒱ }}$ㅤ
 
 
 
